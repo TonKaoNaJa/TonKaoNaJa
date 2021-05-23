@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Blender.
 - 💞️ I’m looking to collaborate on Blizzard Entertainment,Valve Corporation,.
 - 📫 How to reach me :
--   Email     :   tonkao1234567890@hotmail.com,tonkaotonnm@gmail.com 
+-   Email     :   tonkao1234567890@hotmail.com tonkaotonnm@gmail.com 
 -   Facebook  :   https://www.facebook.com/TAAAAJUKO 
 -   Instagram :   https://www.instagram.com/t.a.j.u.k.o/ 
 
